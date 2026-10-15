@@ -1,0 +1,2 @@
+# tubayapayzeka
+seminerde yaptığımız çalışmalar
